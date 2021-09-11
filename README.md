@@ -6,7 +6,7 @@
 - 👨‍💻 My ambitions are to become a well educated,innocent,smart,helpful person,expert in programming,scientist and worldwide traveller.
 - 🏫 My schools are Sumanajothi Primary School , Ingiriya and K/Taxila Central College , Horana.
 - 🏡 I live in Sri Lanka.
-- 🗣 I can speak Sinhala very well and little bit of English,Tamil.
+- 🗣 I can speak Sinhala very well and little bit of English and Tamil.
 - 💗 I wish to help others with programming in future.
 - 🥰 Love you all!!
  
